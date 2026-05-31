@@ -194,4 +194,4 @@ Volunteer firefighter · Volleyball referee · Member of athletic & dance associ
 
 ---
 
-<p align="center"><sub>Ι. Π. Μεσολογγίου · 30.05.2026</sub></p>
+
